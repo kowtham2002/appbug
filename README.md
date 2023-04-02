@@ -1,5 +1,5 @@
-Albert iTunes Bug 2023 Free Code Release 
-...........::::::Open Source By AppleCheck.io::::::................
+# Albert iTunes Bug 2023 Free Code Release 
+# ...........::::::Open Source By AppleCheck.io::::::................
 Supported devices : iPhone/iPad
 
 THIS IS APPLE SIMLOCK CHECKER FROM ALBERT ITUNES BUG // THANKS EVERYONE HOPE U ENJOY IT 
@@ -25,5 +25,5 @@ Telegram: @MiUnlockCode
 
 Donate :
 
-USDT ERC20: 0x93a4ad733bef765110b242906ed6e314cffe851a
+# USDT ERC20: 0x93a4ad733bef765110b242906ed6e314cffe851a
  
