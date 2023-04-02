@@ -2,7 +2,7 @@ Albert iTunes Bug 2023 Free Code Release
 ...........::::::Open Source By AppleCheck.io::::::................
 Supported devices : iPhone/iPad
 
-THIS IS APPLE CHECKER FROM ALBERT ITUNES BUG // THANKS EVERYONE HOPE U ENJOY IT 
+THIS IS APPLE SIMLOCK CHECKER FROM ALBERT ITUNES BUG // THANKS EVERYONE HOPE U ENJOY IT 
 
 ==== instructions ====
 
