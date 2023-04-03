@@ -24,7 +24,7 @@ Credits: https://applecheck.io/
 Telegram: @MiUnlockCode
 
 Join To Our Group For Future Releases: 
-https://t.me/+DMrhJ5C014ljMDdk
+https://t.me/MiUnlockGithub
 
 Donate :
 
